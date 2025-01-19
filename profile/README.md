@@ -4,9 +4,9 @@ kalyan chart | night kalyan chart | kalyan chart panel | kalyan chart night | ka
 
 
  **इसके साथ ही आपके साथ फिक्स अंक शेयर किए है जिसे आप हमारे ग्रुप देख सकते है जिसके लिए आप टेलीग्राम और व्हाट्सप्प ग्रुप को ज्वाइन करले**
-## - Telegram  Group  [Join Now](https://t.me/Hindiupdate201)
+## - Telegram  Group 👉👉 [Join Now](https://t.me/Hindiupdate201)
 
-## - Whatsapp Group  [Join Now](https://whatsapp.com/channel/0029Vay2FudAzNbmVl8KtW14)
+## - Whatsapp Group 👉👉 [Join Now](https://whatsapp.com/channel/0029Vay2FudAzNbmVl8KtW14)
 
 ---
 
