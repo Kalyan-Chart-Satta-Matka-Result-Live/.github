@@ -10,11 +10,11 @@ kalyan chart | night kalyan chart | kalyan chart panel | kalyan chart night | ka
 
 ---
 
-**यहाँ देखें Fix👉👉 [कल्याण फिक्स अंक](https://info.pmyojanasathi.com/) 👈👈**
+**यहाँ देखें Fix👉👉 [कल्याण फिक्स अंक](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 👈👈**
 
-**यहाँ देखें Fix👉👉 [कल्याण रिजल्ट लाइव ](https://info.pmyojanasathi.com/) 👈👈**
+**यहाँ देखें Fix👉👉 [कल्याण रिजल्ट लाइव ](https://www.google.com/search?q=hindipanti+in) 👈👈**
 
-**यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://info.pmyojanasathi.com/) 👈👈**
+**यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 👈👈**
 
 
 ## Kalyan Chart
